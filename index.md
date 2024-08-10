@@ -1,8 +1,8 @@
 # A Vision for Constitutional Reform: Shaping Bangladesh’s Future in 2024
 **This is a proposal to reform the constitution of Bangladesh to prevent dictatorship, fascism, and oppression. We envision a new Bangladesh where democracy thrives, individual freedoms are safeguarded, and the rule of law is upheld. Our aim is to create a more transparent, accountable, and equitable system of governance that reflects the true will of the people and ensures justice for all. By enacting these reforms, we seek to build a nation that fosters integrity, upholds human rights, and promotes an inclusive and participatory democracy. We want a new Bangladesh where every citizen’s voice is heard and respected.**
 
-- Provide your feedback and proposals here: ScholarSentinel@proton.me 
-- Find the current Bangladesh Constitution here: http://bdlaws.minlaw.gov.bd/act-details-367.html
+- Provide your feedback and proposals here: [ScholarSentinel@proton.me](mailto:ScholarSentinel@proton.me) 
+- Find the current Bangladesh Constitution here: [Govt. website](http://bdlaws.minlaw.gov.bd/act-details-367.html)
 
 ### Key Objectives of the Proposed Constitutional Amendments:
 
